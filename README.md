@@ -1,4 +1,4 @@
-# thearenacamranh
+# Dự án Condotel The Arena Cam Ranh chính thức ra mắt
 Dự án Condotel The Arena Cam Ranh, chính thức ra mắt quỹ căn độc quyền đẹp nhất dự án.
 Nằm tại bãi biển Bãi Dài xinh đẹp, <strong>Condotel The Arena Cam Ranh</strong> hội tụ tinh hoa kiến trúc và điều kiện tự nhiên tuyệt vời tạo nên sức hút lớn với nhà đầu tư.
 
